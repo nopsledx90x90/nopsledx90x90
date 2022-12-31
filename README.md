@@ -2,7 +2,7 @@
 - 👀 I’m interested in industrial systems 🚆 🛩️ 🚘
 - 👷 Worked in all things industrial cyber for the military and energy sector
 - 🌱 I’m currently learning artificial intelligence for industrial things
-
+- 🥋 Brazilian Jiu-jistu black belt
 
 <!---
 nopsledx90x90/nopsledx90x90 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
